@@ -1,5 +1,5 @@
 # 💫 About Me:
-j'etudier a universite mundiapolise en 3 annee licence informatique applique options devllopement logiciel est web <br>
+j'etudier a universite mundia polise en 3 annee licence informatique applique options devllopement logiciel est web <br>
 
 
 ## 🌐 Socials:
